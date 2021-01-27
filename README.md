@@ -29,3 +29,6 @@
 | ノーゲーム・ノーライフ | 白 Tuck-up | 2021年2月 | | <ul><li> [x] </li></ul> | 263 | 0 | 263 | 15 | <ul><li> [ ] </li></ul> | 0% |
 | Miscellaneous| Crawlin | ??? | | <ul><li> [x] </li></ul> | 260 | 0 | 260 | 15 | <ul><li> [ ] </li></ul> | 0% |
 
+## New
+- Bandai MOBILE DOLL 莎拉
+- 寿屋 白大鹫
