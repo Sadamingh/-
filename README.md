@@ -31,4 +31,4 @@
 
 ## New
 - Bandai MOBILE DOLL 莎拉
-- 寿屋 白大鹫
+- 寿屋 白大鹫 purchased
